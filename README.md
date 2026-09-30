@@ -1,4 +1,4 @@
-# Hi, I'm Ngoc (Sisy) 👋
+# Hi, I'm Ngoc (Audrea Sisy) 👋
 
 **Operations, automated — by one person, end to end.**
 
